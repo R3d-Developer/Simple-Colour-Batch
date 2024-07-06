@@ -14,7 +14,7 @@ Für so etwas könnte man die codes nutzten
 
 ![image](https://github.com/R3d-Developer/Simple-Colour-Batch/assets/88716926/0b7566f7-85ad-49dc-862d-966455b7062a)
 
-**A 🌟 would be Appreciate it if u "🎪" to use it anyways ;)**
+**A 🌟 would be Appreciate it if u in"🎪" to use it anyways ;)**
 ------------------------------------------------------------------------------------------------------------
 **Ein 🌟 würde mich wirklich freun wenn du die Zeit die ich dir erspaart hab wert schätzt :)**
 ------------------------------------------------------------------------------------------------------------
